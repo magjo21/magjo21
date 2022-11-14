@@ -12,7 +12,7 @@ I am starting new in my life so i decided to learn Coding (im very happy about i
 - meeting with friends 
 - going to the fitnesscenter
 - playing drums 
-- to go out into nature
+- going out into nature
 - Working on cars
 
 ![Link](https://www.miffy.de/assets/img/icons/og-image-200x200.png)
